@@ -1,2 +1,2 @@
-# Mas-Zumam
-Selvi Nur Rohmah
+# Personal learning purposes
+
